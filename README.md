@@ -1,7 +1,6 @@
 ### Olá! Pode me chamar de Pri :)
 
 - 🔭 Hoje trabalho com Planejamento Financeiro em uma grande empresa de Tecnologia
-- 🌱 Atualmente estou fazendo o Bootcamp do Santander e estudando outras coisas em paralelo
 - 📫 Contate-me no e-mail: pricilla.freitas@live.com
 - 😄 Pronouns: ela/dela
 
