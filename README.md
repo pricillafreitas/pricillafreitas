@@ -1,6 +1,6 @@
 ### Olá! Pode me chamar de Pri :)
 
-- 🔭 Hoje trabalho com Planejamento Financeiro em uma grande empresa de Tecnologia
+- 🔭 SAP FI Consultant @ Ocean Tech Group
 - 📫 Contate-me no e-mail: pricilla.freitas@live.com
 - 😄 Pronouns: ela/dela
 
